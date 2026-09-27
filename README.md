@@ -2,7 +2,7 @@
 - 👀 I’m interested in meteorology (specifically upward-initiated lightning)
 - 🌱 I’m currently learning whatever comes to mind!
 - 💞️ I’m looking to collaborate on making my code more efficient
-- 📫 Reach me at my email blamsma@oswego.edu 
+- 📫 Reach me at my email blamsma@ttu.edu 
 - 😄 Pronouns: They/Them :3
 - ⚡ Fun fact: I am an avid runner who typically will go 40-50 miles per week
 
